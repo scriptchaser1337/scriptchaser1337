@@ -1,4 +1,4 @@
 ## me
 
-hi! I'm scritpchaser1337  
+hi! I'm script chaser  
 check out my portfolio here: https://scriptchaser1337.github.io
